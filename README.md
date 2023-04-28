@@ -3,7 +3,7 @@
 看图说话吧
 ![Image text](https://github.com/fanbaovpn/ruifen/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20230428151240.jpg)
 该作品闪闪发光新出炉的一样,是你理想作品更多图片了
-https://github.com/fanbaovpn/ruifen/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20230428151250.jpg
+![Image text](https://github.com/fanbaovpn/ruifen/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20230428151250.jpg)
 ![Image text](https://github.com/fanbaovpn/ruifen/blob/main/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20230428151246.jpg)
 看了心动,,重要的是什么硬度高啊...砍铁都不怕挂不花
 不过价格不是好惹的,更多作品请你加群kuaishougif这个wx群了解更多,补充知识要：瑞粉折叠刀是一种常用的户外刀具，有许多不同品牌和型号可供选择。然而，对于大多数用户来说，选择哪个品牌和型号可能会变得很困难。因此，本文将通过对几个常见品牌和型号进行比较，来探讨哪一个瑞粉折叠刀更好。
